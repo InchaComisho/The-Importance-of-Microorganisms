@@ -34,3 +34,6 @@ Microorganisms are the foundation of life, and their loss impacts our entire eco
 #EcosystemFoundation #EcosystemRestoration
 #ClimateSolution #ClimateStabilization #PlanetCooling #NatureHarmony #LowRiskApproach #OceanBreathingSystem
 #MicrobialAwareness #InvisibleCollapse #SustainableFuture
+
+https://note.com/inchacomusho/n/nb51b18b7a981
+https://note.com/inchacomusho/n/n48ae33c2f84c
